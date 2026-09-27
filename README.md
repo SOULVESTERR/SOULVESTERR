@@ -1,6 +1,6 @@
 <div align="center">
 
-<sup><sub>[ata](https://soul-vester.atabook.org) , [main acc](https://github.com/yellowdeltarune.com)
+<sup><sub>[ata](https://soul-vester.atabook.org) , [main acc](https://github.com/yellowdeltarune)
 
 <div align="center">
 
