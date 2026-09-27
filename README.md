@@ -9,7 +9,7 @@
 
 <img src="https://files.catbox.moe/g199y9.png"/>
 
-<sup><sub> dni soulvester doubles please ! ~ soulvester yume since october 1st , 2025 ( <3 )
+<sup><sub> dni soulvester doubles please ! ~ soulvester yume since october 1st , 2025 ( <3 )  jokeprotection canon !
 
 <sup><sub> NO i dont ship gourdy x soulvester just because soulvester is my f/o and i kin gourdy, dni gourdy x soulvester shippers at all costs.
 
