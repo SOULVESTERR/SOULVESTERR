@@ -2,6 +2,8 @@
 
 <sup><sub>[ata](https://soul-vester.atabook.org) , [main acc](https://github.com/yellowdeltarune)
 
+<div align="center"> <img src="https://komarev.com/ghpvc/?username=yellowdeltarune&label=🗡️&color=81d6b5" /> 
+
 <div align="center">
 
 <p align="center"> <sup><sub> $\color{#fffbe3}{\textsf{ sign ata while ur reading this if u wanna ok? i wanna make friends , pls lmk if im inting with someone problematic, it helps alot }}$ 
