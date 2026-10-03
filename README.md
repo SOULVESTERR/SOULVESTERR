@@ -1,4 +1,4 @@
-<div align="center">
+
 
 
 
@@ -37,7 +37,7 @@
 
 <img width="416" height="191" alt="image" src="https://github.com/user-attachments/assets/f9918963-cf33-4307-8d18-1d86a49d3649" /> 
 
-do not be like this insufferable tart LMAOO
+do not be like this insufferable tart LMAOO , like just delete it or fix it and move on with ur day LMAOO
 
 - - -
 
