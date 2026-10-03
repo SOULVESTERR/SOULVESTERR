@@ -2,6 +2,12 @@
 
 
 
+
+
+<div align="center">
+
+
+
 <div align="center"> <img src="https://komarev.com/ghpvc/?username=yellowdeltarune&label=🗡️&color=81d6b5" /> 
 
 <div align="center">
@@ -28,6 +34,10 @@
 <p align="center">$\color{#fffbe3}{\textsf{ 　　basic dni　　﹕　　open 2 chat (most of the time)　　﹕　　bmf!　　  }}$ 
 
 <img src="https://64.media.tumblr.com/94cb6f812e722f8d095218a3edd70a4f/91aab7466ea3700c-8c/s640x960/c721d294b402878df340b04ea466915968c0ea14.pnj"/>
+
+<img width="416" height="191" alt="image" src="https://github.com/user-attachments/assets/f9918963-cf33-4307-8d18-1d86a49d3649" /> 
+
+do not be like this insufferable tart LMAOO
 
 - - -
 
