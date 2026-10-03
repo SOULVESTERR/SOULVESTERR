@@ -33,7 +33,9 @@
 
 <img src="https://cdn.discordapp.com/attachments/1368735696633856113/1555938985652781126/Screenshot_2026-10-03_at_8.40.40_AM.png?backend=b2&ex=6ac2589a&is=6ac1071a&hm=4c8783cf8fcce732fd7d8fe7c56538cfcfbcbdcc54e518e5d8ac9962f786290f"/>
 
+<img width="396" height="491" alt="image" src="https://github.com/user-attachments/assets/40eec63c-f4fd-417e-b403-c8f1de3775f4" />
 
+first person to get golden soulvester lol !!!!!!!!
 
 
 
