@@ -1,7 +1,33 @@
 
-rmking but like sign my ata
+
+<table border="0" align="right">
+<th>
+<p align="center">
+    <br>
+$\color{#ff945e}{\textsf{一 Matt or Oswald or Mart}}$<br>
+$\color{#a0a06e}{\textsf{he/they/it (no fem prns)}}$<br>
+    <br>
+$\color{#b694ac}{\textsf{voidsharing soulvester yume since (10/1/25)}}$<br>
+$\color{#e5fcf2}{\textsf{i perm block doubles + perm hide}}$<br>
+    <br>
+$\color{#ff945e}{\textsf{i freely block if you seem weird to me, which could be anything really.}}$<br>
+$\color{#a0a06e}{\textsf{i have bpd, gad + sad, (suspected ptsd, autism and adhd)}}$<br>
+<br>
+$\color{#b694ac}{\textsf{feel free to be friends with me, i just won't interact first unless close}}$<br>
+$\color{#e5fcf2}{\textsf{dw / mcsm fandom iwc and faa fandom dni}}$<br>
+</p>
+<p align="center"><img width="20%" src="https://static.wikia.nocookie.net/dandys-world-robloxhorror/images/a/a3/Soul_Sword.png/revision/latest?cb=20251010214912" /></p>
+<table align="center">
+    <tr></tr>
+      <th>
+        ${\text{\color{#466373} LINKS }}$
+      </th>
+</table>
+</p>
+<p align="center">
+<a href="https://soul-vester.atabook.org/">ata</a>　　<a href="https://github.com/yellowdeltarune/">main</a>
+</th>
+</table>
 
 
-
-
-
+<img src="https://file.garden/asK8R4fOscgWTCmj/tumblr_84c554a45ab55b50ea585be240e81995_4a28a4d3_1280-removebg-preview.png"/> 
