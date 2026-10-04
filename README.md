@@ -22,7 +22,7 @@ $\color{#e5fcf2}{\textsf{dw / mcsm fandom iwc + faa fandom dni}}$<br>
 <table align="center">
     <tr></tr>
       <th>
-        ${\text{\color{#FFFFFF} LINKS !! }}$
+        ${\text{\color{#FFFFFF} GATEWAY ! }}$
       </th>
 </table>
 </p>
