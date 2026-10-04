@@ -1,54 +1,5 @@
 
-
-
-
-
-
-<div align="center">
-
-
-
-<div align="center"> <img src="https://komarev.com/ghpvc/?username=yellowdeltarune&label=🗡️&color=81d6b5" /> 
-
-<div align="center">
-
-<p align="center"> <sup><sub> $\color{#fffbe3}{\textsf{ sign ata while ur reading this if u wanna ok? i wanna make friends , pls lmk if im inting with someone problematic, it helps alot }}$ 
-
-<p align="center"> $\color{#81d6b5}{\textsf{ gifted' soulvester skins: 6　♡　gift me one n' maybe i'll gift u back (depends on the time and if i'm lazy..) !    }}$
-  
-<sup><sub>[ata](https://soul-vester.atabook.org) , [main acc](https://github.com/yellowdeltarune) 
-
-
-
-
-
-
-<img src="https://files.catbox.moe/g199y9.png"/>
-
-<sup><sub> dni soulvester doubles please ! ~ soulvester yume since october 1st , 2025 ( <3 )  jokeprotection canon !
-
-<sup><sub> NO i dont ship gourdy x soulvester just because soulvester is my f/o and i kin gourdy, dni gourdy x soulvester shippers at all costs.
-
-<p align="center">$\color{#a166bc}{\textsf{ 𓏲⠀⠀..　dyle + soulvester yume　.ㅤㅤ　15yo　　bpd　𓎟𓎟　waxwell / gourdy kin   }}$ 
-<p align="center"> $\color{#81d6b5}{\textsf{ iwec　♡　sometimes semi or non verbal　♡　mostly offtab w2i    }}$
-<p align="center">$\color{#fffbe3}{\textsf{ 　　basic dni　　﹕　　open 2 chat (most of the time)　　﹕　　bmf!　　  }}$ 
-
-<img src="https://64.media.tumblr.com/94cb6f812e722f8d095218a3edd70a4f/91aab7466ea3700c-8c/s640x960/c721d294b402878df340b04ea466915968c0ea14.pnj"/>
-
-<img width="416" height="191" alt="image" src="https://github.com/user-attachments/assets/f9918963-cf33-4307-8d18-1d86a49d3649" /> 
-
-do not be like this insufferable person okokokok????? LMAOO , like just delete it or fix it and move on with ur day LMAOO
-
-- - -
-
-<img src="https://cdn.discordapp.com/attachments/1368735696633856113/1555938985652781126/Screenshot_2026-10-03_at_8.40.40_AM.png?backend=b2&ex=6ac2589a&is=6ac1071a&hm=4c8783cf8fcce732fd7d8fe7c56538cfcfbcbdcc54e518e5d8ac9962f786290f"/>
-
-<img width="396" height="491" alt="image" src="https://github.com/user-attachments/assets/40eec63c-f4fd-417e-b403-c8f1de3775f4" />
-
-first person to get golden soulvester lol !!!!!!!!
-
-
-
+rmking but like sign my ata
 
 
 
