@@ -1,5 +1,5 @@
 
-<img src="https://file.garden/asK8R4fOscgWTCmj/Untitled1366_20261004193237.png" width="399" align="left">
+<img src="https://file.garden/asK8R4fOscgWTCmj/Untitled1366_20261004193237.png" width="380" align="left">
 
 
 <table border="0" align="right">
