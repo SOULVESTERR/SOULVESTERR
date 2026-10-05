@@ -34,4 +34,4 @@ $\color{#e5fcf2}{\textsf{dw / mcsm fandom iwc + faa fandom dni}}$<br>
 
 <p align="center"> 
     
-<img src="https://64.media.tumblr.com/1c839b7d10f8b69f5f8e0488e9091d28/80cfcee8ab688a54-48/s250x400/631b77df4888f7e16582263d3c74c57696f41ed1.gif" width="80"> <img src="https://64.media.tumblr.com/563a3abc693f2fc961ca1aacf18cb0c0/181756659d3e6299-3a/s100x200/8e6752533ee95da26d352720130d75ddadd0355f.pnj" width="80"> <img src="https://64.media.tumblr.com/19a2f01b5cf7d98bd0bfa48550100b4a/b90f09f2ea52fe6e-91/s100x200/d7abca06745d3930c07480807dc4e4e9518ca296.gif" width="80"> <img src="https://file.garden/asK8R4fOscgWTCmj/ribecca-the-skeleton-hey-not-bad-ezgif.com-add-image.gif" width="80">
+<img src="https://file.garden/asK8R4fOscgWTCmj/ezgif.com-add-image-2.gif" width="80"> <img src="https://file.garden/asK8R4fOscgWTCmj/ezgif.com-add-image.gif" width="80"> <img src="https://file.garden/asK8R4fOscgWTCmj/ezgif.com-add-image-3.gif" width="80"> <img src="https://file.garden/asK8R4fOscgWTCmj/ribecca-the-skeleton-hey-not-bad-ezgif.com-add-image.gif" width="80">
