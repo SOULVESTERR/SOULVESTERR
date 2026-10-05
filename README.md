@@ -1,7 +1,7 @@
 
 <img src="https://file.garden/asK8R4fOscgWTCmj/Untitled1366_20261004193237.png" width="380" align="left">
 
-
+23:15[Srout] ill go left! ginger you go right! and cosmo? you just be cosmo- and together....we are WHITE BAKERS!
 
 <table border="0" align="right">
 <th>
