@@ -17,7 +17,7 @@ $\color{#f2396c}{\textsf{i freely block if you seem weird to me, which could be 
 $\color{#909fe6}{\textsf{i have bpd, gad + sad, (suspected ptsd, autism and adhd)}}$<br>
 <br>
 $\color{#3502d9}{\textsf{feel free to be friends with me, i just won't interact first unless close}}$<br>
-$\color{#3bcb2e}{\textsf{dw / mcsm fandom iwc + fact attack fandom dni}}$<br>
+$\color{#3bcb2e}{\textsf{dw / mcsm fandom iwc + fact attack + bad things fandom dni}}$<br>
 </p>
 <p align="center"><img width="250" src="https://file.garden/asK8R4fOscgWTCmj/New%20board.png" /></p>
 <table align="center">
