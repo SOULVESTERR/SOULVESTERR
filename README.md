@@ -48,4 +48,4 @@ $\color{#3bcb2e}{\textsf{dw / mcsm fandom iwc + fact attack + bad things fandom 
 
 <img src="https://file.garden/asK8R4fOscgWTCmj/IMG_1359.png" width="120"> <img src="https://file.garden/asK8R4fOscgWTCmj/IMG_1359.png" width="120"> <img src="https://file.garden/asK8R4fOscgWTCmj/IMG_1359.png" width="120">
 
-BYE WHO SENT THIS LMAOOO , PACK it up.
+BYE WHO SENT THIS LMAOOO , GOD ISNT EVEN REAL BYE
