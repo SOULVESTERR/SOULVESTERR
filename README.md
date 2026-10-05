@@ -12,6 +12,7 @@ $\color{#44872d}{\textsf{he/they/it (no fem prns)}}$<br>
     <br>
 $\color{#2b2552}{\textsf{voidsharing soulvester yume since (10/1/25)}}$<br>
 $\color{#a8e5eb}{\textsf{i perm block doubles + perm hide}}$<br>
+$\color{#605482}{\textsf{gifted soulvester skins: 7 , make me one please.}}$<br>
     <br>
 $\color{#f2396c}{\textsf{i freely block if you seem weird to me, which could be anything really.}}$<br>
 $\color{#909fe6}{\textsf{i have bpd, gad + sad, (suspected ptsd, autism and adhd)}}$<br>
