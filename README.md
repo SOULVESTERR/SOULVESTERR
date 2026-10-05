@@ -3,7 +3,7 @@
 
 23:15[Srout] ill go left! ginger you go right! and cosmo? you just be cosmo- and together....we are WHITE BAKERS! <sub>(this one is satire, the other isn't)
 
-23:13[🍪 vanilla swirlz!! <33] thanks but im not changing her skin because it doesnt freaking matter, until proven she has a canon ethneicity for her represtation, I refuse
+23:13[🍪 vanilla swirlz!! <33] thanks but im not changing her skin because it doesnt freaking matter, until proven she has a canon ethneicity for her represtation, I refuse <sub> (not me btw, actual person said this lmao)
 
 <table border="0" align="right">
 <th>
