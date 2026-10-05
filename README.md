@@ -1,7 +1,7 @@
 
 <img src="https://file.garden/asK8R4fOscgWTCmj/Untitled1366_20261004193237.png" width="380" align="left">
 
-23:15[Srout] ill go left! ginger you go right! and cosmo? you just be cosmo- and together....we are WHITE BAKERS!
+23:15[Srout] ill go left! ginger you go right! and cosmo? you just be cosmo- and together....we are WHITE BAKERS! <sub>(this one is satire, the other isn't)
 
 23:13[🍪 vanilla swirlz!! <33] thanks but im not changing her skin because it doesnt freaking matter, until proven she has a canon ethneicity for her represtation, I refuse
 
