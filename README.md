@@ -35,3 +35,10 @@ $\color{#3bcb2e}{\textsf{dw / mcsm fandom iwc + fact attack fandom dni}}$<br>
 <p align="center"> 
     
 <img src="https://file.garden/asK8R4fOscgWTCmj/ezgif.com-add-image-2.gif" width="90"> <img src="https://file.garden/asK8R4fOscgWTCmj/ezgif.com-add-image.gif" width="90"> <img src="https://file.garden/asK8R4fOscgWTCmj/ezgif.com-add-image-3.gif" width="90"> <img src="https://file.garden/asK8R4fOscgWTCmj/ribecca-the-skeleton-hey-not-bad-ezgif.com-add-image.gif" width="90">
+
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31k2imnse2k6tlpbkpvoxigigjay&cover_image=false&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=444444&bar_color_cover=true">
+  </a>
+</p>
