@@ -45,3 +45,7 @@ $\color{#3bcb2e}{\textsf{dw / mcsm fandom iwc + fact attack + bad things fandom 
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31k2imnse2k6tlpbkpvoxigigjay&cover_image=false&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=444444&bar_color_cover=true">
   </a>
 </p>
+
+<img src="https://file.garden/asK8R4fOscgWTCmj/IMG_1359.png" width="120"> <img src="https://file.garden/asK8R4fOscgWTCmj/IMG_1359.png" width="120"> <img src="https://file.garden/asK8R4fOscgWTCmj/IMG_1359.png" width="120">
+
+BYE WHO SENT THIS LMAOOO , PACK it up.
