@@ -34,4 +34,4 @@ $\color{#e5fcf2}{\textsf{dw / mcsm fandom iwc + faa fandom dni}}$<br>
 
 <p align="center"> 
     
-<img src="https://file.garden/asK8R4fOscgWTCmj/ezgif.com-add-image-2.gif" width="85"> <img src="https://file.garden/asK8R4fOscgWTCmj/ezgif.com-add-image.gif" width="85"> <img src="https://file.garden/asK8R4fOscgWTCmj/ezgif.com-add-image-3.gif" width="85"> <img src="https://file.garden/asK8R4fOscgWTCmj/ribecca-the-skeleton-hey-not-bad-ezgif.com-add-image.gif" width="85">
+<img src="https://file.garden/asK8R4fOscgWTCmj/ezgif.com-add-image-2.gif" width="90"> <img src="https://file.garden/asK8R4fOscgWTCmj/ezgif.com-add-image.gif" width="90"> <img src="https://file.garden/asK8R4fOscgWTCmj/ezgif.com-add-image-3.gif" width="90"> <img src="https://file.garden/asK8R4fOscgWTCmj/ribecca-the-skeleton-hey-not-bad-ezgif.com-add-image.gif" width="90">
