@@ -1,9 +1,7 @@
 
 <img src="https://file.garden/asK8R4fOscgWTCmj/Untitled1366_20261004193237.png" width="380" align="left">
 
-23:15[Srout] ill go left! ginger you go right! and cosmo? you just be cosmo- and together....we are WHITE BAKERS! <sub>(this one is satire, the other isn't)
 
-23:13[🍪 vanilla swirlz!! <33] thanks but im not changing her skin because it doesnt freaking matter, until proven she has a canon ethneicity for her represtation, I refuse <sub> (not me btw, actual person said this lmao)
 
 <table border="0" align="right">
 <th>
@@ -48,6 +46,17 @@ $\color{#3bcb2e}{\textsf{dw / mcsm fandom iwc + fact attack + bad things fandom 
   </a>
 </p>
 
-<img src="https://file.garden/asK8R4fOscgWTCmj/IMG_1359.png" width="120"> <img src="https://file.garden/asK8R4fOscgWTCmj/IMG_1359.png" width="120"> <img src="https://file.garden/asK8R4fOscgWTCmj/IMG_1359.png" width="120">
-
-BYE WHO SENT THIS LMAOOO , GOD ISNT EVEN REAL BYE
+<table align="center"><th>
+<details><summary> <br>$\text{\small\it\color{#a8e5eb}Friends, ask to be added.}$</summary>  
+  
+<br>[Gordon!](https://github.com/thewardenmcsm) 
+<br>[Lumi!](https://github.com/luminescent-oceans)
+<br>[Shelly!](https://github.com/vintagefossil)
+<br>[Mabel!](https://github.com/madelinedovetergent)
+<br>[Domo!](https://github.com/coalcarolynne)
+<br>[Uzi/Marceline!](https://github.com/CYBERNETICPARASITE)
+<br>[Roxy/Lotus!](https://github.com/DearestRoxy)
+<br>[Jax!](https://github.com/V4MPZNF4NGZ)
+<br>[Freedom!](https://github.com/Princ3ssLuna)
+ 
+  </details>
