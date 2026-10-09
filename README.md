@@ -54,6 +54,7 @@ $\color{#3bcb2e}{\textsf{dw / mcsm fandom iwc + fact attack + bad things fandom 
 <br>[Shelly!](https://github.com/vintagefossil)
 <br>[Mabel!](https://github.com/madelinedovetergent)
 <br>[Domo!](https://github.com/coalcarolynne)
+<br>[Andre!](https://github.com/a1p1yuri)
 <br>[Uzi/Marceline!](https://github.com/CYBERNETICPARASITE)
 <br>[Roxy/Lotus!](https://github.com/DearestRoxy)
 <br>[Jax!](https://github.com/V4MPZNF4NGZ)
